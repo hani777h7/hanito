@@ -3,6 +3,4 @@
 New journey 
 
 ## hani
-the new update from Mohamed
-2nd update
-
+the new update from Mohamed.
